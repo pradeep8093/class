@@ -1,1 +1,1 @@
-## Student Database for the Class. :smiley: :sparkle: :heart: :sparkling_heart:
+## Student Database for the Class. :smiley: :sparkle: :heart: :sparkling_heart: :heart_eyes:
